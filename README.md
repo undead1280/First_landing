@@ -1,2 +1,2 @@
 # first layout
-published at https://undead1280.github.io/First_layout/
+published at https://undead1280.github.io/funny_layout/
